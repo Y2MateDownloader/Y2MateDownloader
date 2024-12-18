@@ -27,4 +27,18 @@ Y2mate is a widely used and free application designed for downloading MP3 music 
 
 Discover the convenience of Y2mate for all your MP3 music and video downloading needs. Experience fast, easy, and unlimited downloads today!
 
+Keys:
 
+Y2mate win
+
+Y2mate download
+
+Y2mate Downloader
+
+Y2mate youtube
+
+youtube
+
+Y2mate free
+
+Y2mate windows
